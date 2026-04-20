@@ -23,8 +23,8 @@ OA代写、大厂笔试、hackerrank包过专业提供在线评测（OA）代写
 更多服务详情和价格介绍请移步 -> ProgramHelp服务&价格
 
 ## 客户好评
-
-FAANG offer
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/5190e1ac-0678-44e6-9c6f-97acd94923a8" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/316dfcc5-7282-4e36-b9f0-79a3ad816907" />
 
 代写代面试特色 : 先交付后补余款，客户满意后收费，支持一对一远程服务，支持第三方支付交易。
 
